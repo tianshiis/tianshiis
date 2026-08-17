@@ -7,7 +7,12 @@
 
 hello!
 
-feel free to talk to me! i appreciate the company~
+***disclaimer, please refer to me as who my pony is unless you know me.***
+
+i like to game and listen to jrock and jazz. 
+feel free to talk to me! i'm pretty social and appreciate the company~ 
+
+if not, leave a note on my [ata](https://tianshiis.atabook.org/)! i'd love to see a message~
 
 
 
